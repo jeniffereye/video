@@ -1,4 +1,4 @@
-# [Transmissão] Porto vs Roma Em Direto Online grátis 20 Fevereiro 2025
+# [Transmissão] Porto x Roma Em Direto Online grátis 20 Fevereiro 2025
 Como assistir ao jogo Roma x Porto Europa League: transmissão ao vivo, canal de TV e hora de início
 
 🔴 [ENTRAR EM DIRECTO►► CLIQUE AQUI PARA TRANSMITIR](https://jpn-srt.blogspot.com/2025/02/soccer.html)
